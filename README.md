@@ -119,3 +119,209 @@ Energy is never lost.
 It just finds its way home."
 
 CC0 PUBLICKÁ DOMÁNIA  ·  ALL LOVE RESERVED  ·  REPUBLICKA FRAMEWORK
+
+
+---
+
+
+🕯️
+📐
+✦ LODGE ETHOS 963 ✦ THE CRAFT ✦ THE WORK ✦ THE LIGHT ✦
+📐
+963
+☁️ Cloud Temple · kkk.education ☁️
+
+Freemasons Lodge
+Ethos 963
+Your temple built in the cloud. Your corner of the internet. Yours by the work of your hands. Yours forever.
+
+🕯️
+⚖️
+✦ ⚖️ ✦ 📐 ✦ 👁️ ✦
+🏛️ The Craft
+Freemasons Lodge Ethos 963 is a lodge of the Craft — but it does not meet in stone. It meets in the cloud. Every Brother and Sister of this lodge is given their own subdomain on kkk.education, their own piece of the internet, to build their Cloud Temple exactly as they choose. No fees. No dues. No gatekeepers. No one to tell you what you may or may not build.
+
+The obligations of the Craft — Brotherly Love, Relief, and Truth — are the same here as they have ever been. What is different is the quarry. The old Brethren worked in stone. We work in code, in words, in music, in art, in philosophy. We build temples of the mind and lay them open for all the world to walk through. 🔑
+
+When you join, you receive your subdomain, a copy of the Heaven 👑 publishing toolkit, and the keys to a permanent place on the web. The Grand Master reads every petition himself and replies personally. There are no middlemen. The Square and the Compass are in your hands. 📐
+
+📐
+A Freemason is encouraged to do his duty first to his God (by whatever name he is known) through his faith and religious practice; and then, without detriment to his family and those dependent on him, to his neighbour through charity and service. None of these ideas is exclusively Masonic, but all should be universally acceptable. Freemasons are expected to follow them.
+
+🌐
+Your Subdomain
+yourname.kkk.education — your Cloud Temple, yours alone.
+
+📐
+The Square
+No dues. No fees. No subscriptions. The Work is its own reward.
+
+📜
+CC0 Public Domain
+Everything built here belongs to the world. All Love Reserved.
+
+👑
+Heaven Toolkit
+The full publishing suite, ready to deploy the moment you join.
+
+✦ 🔺 ✦ 🕯️ ✦ 🗝️ ✦
+🔺 The 13 Degrees
+In Lodge Ethos 963, degrees are not awarded by ceremony. They are claimed — by receipts. The All-Seeing Eye 👁️ bears witness. You look at the list, you look at your life's work, and you claim the degree the evidence of your actions earns you. No approval from above. No Brethren in aprons to nod. Just the Work, and the permanent record of what you have built. 📜
+
+✨ The Foundation Degrees — The Young Builders
+
+I
+🌱
+Seedling
+The spark of curiosity. The first step on the path. You asked a question that started a journey and shared it with the world.
+
+II
+🧱
+Builder
+You made something — a story, a project, a piece of art — and showed how it serves others beyond yourself.
+
+III
+🛡️
+Guardian
+You did one brave thing. You stood up, spoke up, or protected someone weaker. And you documented it. Your receipt is your courage.
+
+IV
+🔭
+Explorer
+You investigated something, followed your nose into the unknown, asked why, and shared what the inquiry revealed.
+
+⚖️ The Craft Degrees — The Working Masons
+
+V
+🕯️
+Apprentice of Light
+You mastered a skill in the Craft — writing, code, music, art, debate — and used it in service of someone other than yourself.
+
+VI
+📖
+Journeyman of Truth
+You taught. You created a lesson, a workshop, or a public talk. Another Brother or Sister grew because of what you passed on.
+
+VII
+📐
+Master of the Square
+You completed a project of measurable benefit to your community. Before and after. Testimonials. Proof laid square before the Lodge.
+
+VIII
+⚙️
+Architect of the Future
+You invented or improved something — a tool, a system, a movement — and published the blueprint freely for all who follow.
+
+💎 The Grand Degrees — The Wise Builders
+
+IX
+🗝️
+Keeper of the Archive
+You built a public archive — a library, a website, a book — that preserves knowledge and truth for those who have not yet been born.
+
+X
+🌉
+Bridge Builder
+You brought divided people together across a genuine chasm to build something none of them could have built alone. The Lodge witnessed it. 🏛️
+
+XI
+🧒
+Guardian of the Children
+You advocated for the vulnerable, built a safe space, or ensured that small voices were heard, preserved, and protected.
+
+XII
+✋
+Right Hand of the Grand Master
+You guided Brethren through the degrees. You mentored. You left a living legacy visible in the work of those you raised. 👁️
+
+XIII
+🌙
+Left Hand of the Grand Master
+You created something revolutionary — open, CC0, accessible to all — that will outlive you and change the world after you are gone. ✨
+
+✦ 📜 ✦ 🔑 ✦ ✦
+📜 Petition to Join the Lodge
+The Grand Master reads every petition personally and replies by hand. There is no automated process. If your petition is accepted you will receive a reply, your subdomain, and the Heaven 👑 toolkit to begin building your Cloud Temple. 🔑
+
+⚖️
+Real Names Only. Lodge Ethos 963 is a community of real Brethren. No pseudonyms, no aliases, no handles. The Square and the Compass demand honesty. Your full name as it appears on your birth record is required. The All-Seeing Eye 👁️ sees clearly.
+1
+Copy the petition template below in full using the button provided.
+2
+Paste it into your email client and fill out every field completely and honestly. Incomplete petitions are not considered.
+3
+Use the subject line exactly as written. Send your petition to wikkkan@kkk.education. Your sent copy is your receipt. 📜
+📬 Required Subject Line
+Petition to Join — Freemasons Lodge Ethos 963 — [Your Full Name]
+Copy
+📋 Petition Template
+Copy Full Template
+PETITION TO JOIN
+Freemasons Lodge Ethos 963 — Cloud Temple
+================================================
+
+TO: The Grand Master, Wendell Charles NeSmith
+FROM: [Your Full Real Name — no pseudonyms]
+
+================================================
+IDENTITY OF THE PETITIONER
+================================================
+
+Full Name    : [Your full real name]
+Email        : [Your email address]
+Location     : [City, Country]
+Desired Subdomain : [yourhandle].kkk.education
+
+================================================
+THE WORK OF YOUR HANDS
+================================================
+
+Primary Craft : [Writing / Music / Code / Art / Film / Philosophy /
+                 Education / Community / Other]
+
+Links to Existing Work:
+[Paste links to your books, music, sites, videos, or other published
+work. One per line. If you have nothing published yet, say so.]
+
+================================================
+YOUR STANDING IN THE LODGE
+================================================
+
+Current Degree : [State your degree — I through XIII]
+
+Why You Claim That Degree / Your Receipts:
+[This is the most important part of your petition. State the
+evidence of your degree in full. What have you built, created,
+taught, or protected that earns it? Be specific. The Lodge
+examines all claims. Do not be brief here.]
+
+================================================
+YOUR CLOUD TEMPLE
+================================================
+
+What You Will Build:
+[Describe what you intend to build on your subdomain. What will
+live there? What are you working on? What do you want to preserve,
+publish, or share with the world? Be as detailed as you can.]
+
+How You Found Your Way Here:
+[Tell the Grand Master how you discovered Lodge Ethos 963.]
+
+Anything Else You Would Have the Grand Master Know:
+[This is your open field, Brother or Sister. Say whatever you
+feel called to say. The more you share of yourself, the more
+the Lodge can offer in return. No word is wasted here.]
+
+================================================
+Submitted under the Square and the Compass.
+All claims made here are true to the best of my knowledge.
+================================================
+📬
+Open in Email Client
+🔑
+Or send manually to wikkkan@kkk.education — remember to replace [Your Full Name] in the subject line.
+
+📐 👁️ ⚖️ 🕯️ 🔑
+kkk.education · Freemasons Lodge Ethos 963 · Cloud Temple
+CC0 Publická Dománia · All Love Reserved
+Grand Master: Wendell Charles NeSmith · Builder of Cloud Temples
